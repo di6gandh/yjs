@@ -1,6 +1,6 @@
-<h1>第6感导航最新网址发布页：</h1>
-第6感导航最新域名：https://d6gdh.xyz/d6g</br>
-第6感导航永久域名：https://d6gdh.com/d6g</br>
+<h1>不良研究所 导航地址(今天推荐)</h1>
+不良研究所：https://d6gdh.xyz/d6g</br>
+不良研究所：https://d6gdh.com/d6g</br>
 找不到最新地址，请发邮件di6gandh@gmail.com</br>
 收藏本站发布页，永不迷路。
 
